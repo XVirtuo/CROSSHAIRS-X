@@ -21,6 +21,6 @@ These antivirus engines bypassed in video for demonstration.
 #### 12 months : $49
 
 ### Free Demo Available 
-### [MY TELEGRAM]([t.me/](https://t.me/XVirtuo)
+### [MY TELEGRAM](https://t.me/XVirtuo)
 
 ####  • made by XVirtuo •
