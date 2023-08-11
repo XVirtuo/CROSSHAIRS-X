@@ -11,7 +11,7 @@
 These antivirus engines bypassed in video for demonstration.
 > • SOPHOS Intercept X • AVG & AVAST • Norton 360 • MS Defender • Dr.Web • McAfee • Kaspersky • Bitdefender • Avira • Malwarebytes • Google Play Protect • Samsung's inbuilt antivirus •
 
-### [FULL UNCUT VIDEO](https://t.me/TheCyberDemonZ/31)
+### [FULL UNCUT VIDEO](https://t.me/TheCyberDemons/31)
 ### [SHORT YOUTUBE VIDEO](https://www.youtube.com/watch?v=Ds8RGnAsquc)
 #
 
@@ -21,6 +21,6 @@ These antivirus engines bypassed in video for demonstration.
 #### 12 months : $49
 
 ### Free Demo Available 
-### [MY TELEGRAM]([t.me/](https://t.me/XVirtuo)https://t.me/XVirtuo)
+### [MY TELEGRAM]([t.me/](https://t.me/XVirtuo)
 
 ####  • made by XVirtuo •
